@@ -72,7 +72,8 @@ Bradley Endris
 ### Resume
 
 **BRADLEY ENDRIS**
-New Albany, IN 47150 | bradleyendris@gmail.com | [linkedin.com/in/bradley-endris](https://www.linkedin.com/in/bradley-endris) | [github.com/bradleyendris](https://github.com/bradleyendris)
+New Albany, IN 47150 | bradleyendris@gmail.com | [linkedin.com/in/bradley-endris](https://www.linkedin.com/in/bradley-endris) |[Bradley Endris 2026.docx](https://github.com/user-attachments/files/26944759/Bradley.Endris.2026.docx)
+
 
 ---
 
